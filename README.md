@@ -1,1 +1,1 @@
-# Puppeteers# RinhHack_2024
+# Puppeteers
